@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="400" height="400" src="https://64.media.tumblr.com/9ca6d9db1ab18c32e41d63b5df2d1017/dfaf2e801bd6f1b1-8f/s1280x1920/a8c6da77cc923bf7aa0b75175badf37eea880a82.pnj">
+  <img src="https://64.media.tumblr.com/9ca6d9db1ab18c32e41d63b5df2d1017/dfaf2e801bd6f1b1-8f/s1280x1920/a8c6da77cc923bf7aa0b75175badf37eea880a82.pnj">
 </p>
 
 <p align="center">
@@ -15,7 +15,7 @@
 </div>
 
 <p align="center">
-  <img width="500" height="500" src="https://64.media.tumblr.com/c431632df0fbfc19acd277bbfb1191a4/2e1ffcc0b98b3a6a-b1/s500x750/79520d1049aa7272c4e8b1e385111e6ba06e2265.gifv">
+  <img src="https://64.media.tumblr.com/c431632df0fbfc19acd277bbfb1191a4/2e1ffcc0b98b3a6a-b1/s500x750/79520d1049aa7272c4e8b1e385111e6ba06e2265.gifv">
 </p>
 
 <p align="center">
@@ -40,7 +40,7 @@
 
 
 <p align="center">
-  <img width="500" height="500" src="https://64.media.tumblr.com/c431632df0fbfc19acd277bbfb1191a4/2e1ffcc0b98b3a6a-b1/s500x750/79520d1049aa7272c4e8b1e385111e6ba06e2265.gifv">
+  <img src="https://64.media.tumblr.com/c431632df0fbfc19acd277bbfb1191a4/2e1ffcc0b98b3a6a-b1/s500x750/79520d1049aa7272c4e8b1e385111e6ba06e2265.gifv">
 </p>
 <p align="center">
   ${\color{#e3332c}\space DNI \space / \space DO \space NOT \space INTERACT }$
@@ -57,7 +57,7 @@
 </p>
 
 <p align="center">
-  <img width="500" height="500" src="https://64.media.tumblr.com/c431632df0fbfc19acd277bbfb1191a4/2e1ffcc0b98b3a6a-b1/s500x750/79520d1049aa7272c4e8b1e385111e6ba06e2265.gifv">
+  <img src="https://64.media.tumblr.com/c431632df0fbfc19acd277bbfb1191a4/2e1ffcc0b98b3a6a-b1/s500x750/79520d1049aa7272c4e8b1e385111e6ba06e2265.gifv">
 </p>
 
 <p align="center">
