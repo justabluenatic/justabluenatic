@@ -23,14 +23,11 @@
 </p>
 
 <p align="center">
-  ${\color{#bababa}⠀\space ⟡ \space My \space name \space is }$ ${\color{#4c8dba}\space Bluenatic, }$ ${\color{#bababa}\space but \space you \space can \space just \space call \space me }$ ${\color{#4c8dba}\space Blue. }$
+  ${\color{#bababa}⠀\space ⟡ \space My \space name \space is }$ ${\color{#4c8dba}\space Bluenatic, }$ ${\color{#bababa}\space but \space you \space can \space just \space call \space me }$ ${\color{#4c8dba}\space Blue \space :P }$
 </p>
 <p align="center">
-  ${\color{#bababa}⠀\space ⟡ \space I \space have }$ ${\color{#fc9a50}\space autism, \space DID, \space severe \space memory \space loss, }$ ${\color{#bababa}\space and \space more. }$
+  ${\color{#bababa}⠀\space ⟡ \space I \space have }$ ${\color{#fc9a50}\space autism, \space DID, \space severe \space memory \space loss, }$ ${\color{#bababa}\space and \space more }$
 </p>
-<p align="center">
-  ${\color{#bababa}⠀\space ⟡ \space My \space best \space friend \space is }$ ${\color{#fc9a50}\space Crossroader, }$ ${\color{#bababa}\space who \space also \space goes \space by }$ ${\color{#4c8bda}\space Jaz(zper) }$ ${\color{#bababa} \space ( \space If \space you \space see \space this, \space hey \space loser! }$ ${\color{#e3332c}\space <3 }$ ${\color{#bababa}\space ) }$
-  </p>
 <p align="center">
   ${\color{#bababa}⠀\space ⟡ \space Ask \space who \space is }$ ${\color{#fc9a50}\space fronting }$ 
 </p>
@@ -43,17 +40,17 @@
   <img src="https://64.media.tumblr.com/c431632df0fbfc19acd277bbfb1191a4/2e1ffcc0b98b3a6a-b1/s500x750/79520d1049aa7272c4e8b1e385111e6ba06e2265.gifv">
 </p>
 <p align="center">
-  ${\color{#e3332c}\space DNI \space / \space DO \space NOT \space INTERACT }$
+  ${\color{#e3332c}\space DNI/IWEC/ \space DO \space NOT \space INTERACT \space /INTERACT \space WITH \space EXTREME \space CAUTION}$
 </p>
 
 <p align="center">
-  ${\color{#bababa}⠀\space ⟡ \space Proship/Profiction }$
+  ${\color{#bababa}⠀\space ⟡ \space Proship/Darkship\ space (DNI) }$
 </p>
 <p align="center">
-  ${\color{#bababa}⠀\space ⟡ \space Endo/Willogenic \space systems}$
+  ${\color{#bababa}⠀\space ⟡ \space Endo/Willogenic \space systems \space (DNI) }$
 </p>
 <p align="center">
-  ${\color{#bababa}⠀\space ⟡ \space Under \space 15 }$
+  ${\color{#bababa}⠀\space ⟡ \space Under \space 17 \space (IWEC) }$
 </p>
 
 <p align="center">
