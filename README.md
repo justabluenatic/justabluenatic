@@ -32,6 +32,9 @@
   ${\color{#bababa}⠀\space ⟡ \space Ask \space who \space is }$ ${\color{#fc9a50}\space fronting }$ 
 </p>
 <p align="center">
+  ${\color{#bababa}⠀\space ⟡ \space Typically \space in \space is }$ ${\color{#e3332c}\space 18+ \space servers, }$ ${\color{#bababa}⠀\space I'm \space only \space in \space safe \space servers \space if \space my \space friends \space are. }$
+</p>
+<p align="center">
   ${\color{#bababa}⠀\space ⟡ \space Feel \space free \space to \space ask \space or \space talk \space to \space us \space about }$ ${\color{#4c8dba}\space " The \space Song \space of \space Achilles " }$ ${\color{#bababa}⠀\space or }$ ${\color{#e3332c}\space " May \space Madness \space 2012 " }$ ${\color{#bababa}⠀\space ! }$
 </p>
 
@@ -44,7 +47,7 @@
 </p>
 
 <p align="center">
-  ${\color{#bababa}⠀\space ⟡ \space Proship/Darkship\ space (DNI) }$
+  ${\color{#bababa}⠀\space ⟡ \space Proship/Darkship \space (DNI) }$
 </p>
 <p align="center">
   ${\color{#bababa}⠀\space ⟡ \space Endo/Willogenic \space systems \space (DNI) }$
