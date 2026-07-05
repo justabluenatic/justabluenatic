@@ -32,7 +32,7 @@
   ${\color{#bababa}⠀\space ⟡ \space Ask \space who \space is }$ ${\color{#fc9a50}\space fronting }$ 
 </p>
 <p align="center">
-  ${\color{#bababa}⠀\space ⟡ \space Typically \space in \space is }$ ${\color{#e3332c}\space 18+ \space servers, }$ ${\color{#bababa}⠀\space I'm \space only \space in \space safe \space servers \space if \space my \space friends \space are. }$
+  ${\color{#bababa}⠀\space ⟡ \space I'm \space always \space in }$ ${\color{#e3332c}\space 18+ \space servers, }$ ${\color{#bababa}⠀\space though \space I'm \space only \space in \space safe \space servers \space if \space my \space friends \space are \space in \space safe \space servers. \space I \space will \space only \space interact \space with \space my \space friends \space if \space I'm \space in \space a \space safe \space server }$
 </p>
 <p align="center">
   ${\color{#bababa}⠀\space ⟡ \space Feel \space free \space to \space ask \space or \space talk \space to \space us \space about }$ ${\color{#4c8dba}\space " The \space Song \space of \space Achilles " }$ ${\color{#bababa}⠀\space or }$ ${\color{#e3332c}\space " May \space Madness \space 2012 " }$ ${\color{#bababa}⠀\space ! }$
