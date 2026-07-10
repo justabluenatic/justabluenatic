@@ -29,6 +29,9 @@
   ${\color{#bababa}⠀\space ⟡ \space I \space have }$ ${\color{#fc9a50}\space autism, \space DID, \space severe \space memory \space loss, }$ ${\color{#bababa}\space and \space more }$
 </p>
 <p align="center">
+  ${\color{#bababa}⠀\space ⟡ \space FR/NOR/ENG }$ ${\color{#4c8dba}\space (FR/NOR \space preferred) }$
+</p>
+<p align="center">
   ${\color{#bababa}⠀\space ⟡ \space Ask \space who \space is }$ ${\color{#fc9a50}\space fronting }$ 
 </p>
 <p align="center">
