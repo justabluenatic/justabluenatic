@@ -32,6 +32,9 @@
   ${\color{#bababa}⠀\space ⟡ \space FR/NOR/ENG }$ ${\color{#4c8dba}\space (FR/NOR \space preferred) }$
 </p>
 <p align="center">
+  ${\color{#bababa}⠀\space ⟡ \space I \space <3 \space my \space girlfriend }$ ${\color{#e3332c}\space Kaylee! }$
+</p>
+<p align="center">
   ${\color{#bababa}⠀\space ⟡ \space Ask \space who \space is }$ ${\color{#fc9a50}\space fronting }$ 
 </p>
 <p align="center">
